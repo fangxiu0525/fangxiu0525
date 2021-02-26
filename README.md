@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+**本人曾获得过：**
+
+**2006年美国时代周刊年度人物**
+
+**2008年感动中国十大人物特别奖**
+
+**2019年联合国“地球卫士奖”**
 <!--
 **fangxiu0525/fangxiu0525** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
