@@ -5,13 +5,7 @@
 
 **脩，是一个汉字，读音为xiū，高、长的意思，可引申为遥远、美好之意。**
 
-**本人曾获得过：**
-
-**2006年美国时代周刊年度人物**
-
-**2008年感动中国十大人物特别奖**
-
-**2019年联合国“地球卫士奖”**
+**一个什么都不会的大学生。**
 
  <p>
   <img width="50%"src="https://github-readme-stats-820sxk75u.vercel.app/api?username=fangxiu0525&show_icons=true&hide_border=true?theme=radical" />
